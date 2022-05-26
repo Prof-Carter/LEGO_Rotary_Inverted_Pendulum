@@ -2,4 +2,6 @@
 
 [YouTube「かーたー」チャンネル](https://www.youtube.com/channel/UCQxZZypRXCsvALuvmWy68jw)
 
+ぼちぼちと更新していきますね！
+
 ![画像](img/page1.jpg)
